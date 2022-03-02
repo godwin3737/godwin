@@ -1,0 +1,15 @@
+---
+layout: post
+title: Something simple & primevial ..
+date: 2011-04-17 08:38
+author: godwin3737
+comments: true
+categories: [About Godwin]
+---
+There is in every man, deep down in his nature, something simple and primevial. In my case i am the prince of the legion that is prisoner to being captivated by life.
+
+All my life i have cherished the sublime aspects of it, like certain pictures of landscape, of which i have caught a glimpse in my travels, as broken hints of beauty that are embellished forever in my mind.
+
+For in my realm of senses, i have been captivated constantly. Albeit must admit neither by one single thing nor indefinitely by multiple things (Audrey Hepburn being the only exception).
+
+The vicious wheel of captivity within me comes into being, flourishes, withers and descends to an unlamented grave only to be later revived , acclaimed and again rejected by me. Its like the ultimate truth of life “<em>Nothing lives continuously, but nothing wholly die"</em> …
